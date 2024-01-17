@@ -1,0 +1,1 @@
+Copyright : Pramudya Diva dkk 2020.
